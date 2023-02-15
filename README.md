@@ -1,3 +1,2 @@
-Repositório para projetos desenvolvidos em ��#� �J�a�v�a�
-�
-�
+Repositório para projetos desenvolvidos em �J�a�v�a�
+
